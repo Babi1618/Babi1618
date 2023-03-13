@@ -1,4 +1,5 @@
 ### Hi there 👋
+I'm Barbara! Welcome to my profile :)
 
 <!--
 **Babi1618/Babi1618** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
