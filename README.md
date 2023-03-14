@@ -16,3 +16,15 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+
+* 📲 How to reach me: 
+##### Email:
+b.giuliani1618@gmail.com  
+
+##### Linkedin:
+https://www.linkedin.com/in/barbaragiuliani1618/
+
+##### Discord:
+Barbara Giuliani#2976
